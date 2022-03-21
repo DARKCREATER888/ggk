@@ -1,2 +1,2 @@
 #YOU ARE AN İDİOT HA HA HA HA
-Hİ SAMİR
+
